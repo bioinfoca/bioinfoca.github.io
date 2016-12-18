@@ -1,4 +1,4 @@
-# EACH bioin4matix.io Courses is Priced the Same,
+# EACH bioin4matix.io Course is Priced the Same,
 # Because, ALL are Equally Invaluable!
 Domestic (Within India), Course Fee= ₹ 2000 INR
 <a href="https://paytm.com/">Paytm</a> Credit-Transfer to Mobile Number- <b>9985 767 509</b>
